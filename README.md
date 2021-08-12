@@ -1,3 +1,3 @@
 {
-  "لاینسس سه هفته": "onlin_panel VIP bombhub.comali135hacked i\u0026^110"
+  "لایسنس دائم": "sms bomber^BOMB HUB---ALi135\":1450000-77 890\";"
 }
